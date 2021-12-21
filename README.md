@@ -8,5 +8,5 @@ Steps for submitting your Project:-
 4. Create a pull request
 
 
-*ALL THE BEST!!*
+*ALL THE BEST FROM GDSC AUM!!*
 
